@@ -85,7 +85,7 @@ Ogni persona merita di essere ascoltata.
 
 Ogni richiesta di aiuto merita una risposta.
 
-<img width="4032" height="1248" alt="image" src="https://github.com/user-attachments/assets/00ddfd20-2c9f-436f-9cfc-3414c2adbfb2" />
+UNA TESTIMONIANZA PERSONALE 
 
 Non scrivo questo manifesto soltanto come psicoterapeuta, psicoanalista e studioso della sofferenza umana.
 
@@ -97,7 +97,6 @@ Soltanto molti anni dopo, tra il 2021 e il 2025, sono riuscito a comprendere e r
 
 Per questo posso affermare, non solo come clinico ma anche come essere umano, che la sofferenza più intensa non rappresenta necessariamente la conclusione di una vita. Ciò che oggi appare insopportabile può essere compreso, trasformato e integrato nel tempo attraverso l'aiuto, la relazione e il coraggio di continuare.
 
-
 A chiunque stia attraversando il proprio momento di buio desidero dire una cosa semplice:
 
 non rinunciate a voi stessi.
@@ -108,7 +107,7 @@ Anche quando la speranza sembra assente, la vita conserva possibilità che in qu
 
 Con rispetto verso ogni persona che soffre, dedico queste parole alla difesa della vita, della dignità umana e della speranza.
 
-<img width="4032" height="815" alt="image" src="https://github.com/user-attachments/assets/8ae1f723-d3d5-4aef-ab30-0776c8dd602f" />
+DEDICA FINALE 
 
 Dedico questo manifesto a tutte le persone che hanno attraversato momenti di sofferenza, smarrimento e disperazione e che, nonostante tutto, hanno scelto di continuare a vivere.
 
