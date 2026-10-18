@@ -85,8 +85,7 @@ Ogni persona merita di essere ascoltata.
 
 Ogni richiesta di aiuto merita una risposta.
 
-<img width="4032" height="1248" alt="image" src="https://github.com/user-attachments/assets/190a4ce3-45c7-465d-9734-b47c2366e0af" />
-
+<img width="4032" height="1248" alt="image" src="https://github.com/user-attachments/assets/00ddfd20-2c9f-436f-9cfc-3414c2adbfb2" />
 
 Non scrivo questo manifesto soltanto come psicoterapeuta, psicoanalista e studioso della sofferenza umana.
 
