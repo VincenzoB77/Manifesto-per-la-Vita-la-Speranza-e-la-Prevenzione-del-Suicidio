@@ -108,8 +108,7 @@ Anche quando la speranza sembra assente, la vita conserva possibilità che in qu
 
 Con rispetto verso ogni persona che soffre, dedico queste parole alla difesa della vita, della dignità umana e della speranza.
 
-<img width="3309" height="2268" alt="image" src="https://github.com/user-attachments/assets/1a87b754-38e4-40d5-b8a9-66ff868a1c60" />
-
+<img width="4032" height="815" alt="image" src="https://github.com/user-attachments/assets/8ae1f723-d3d5-4aef-ab30-0776c8dd602f" />
 
 Dedico questo manifesto a tutte le persone che hanno attraversato momenti di sofferenza, smarrimento e disperazione e che, nonostante tutto, hanno scelto di continuare a vivere.
 
