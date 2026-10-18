@@ -85,7 +85,8 @@ Ogni persona merita di essere ascoltata.
 
 Ogni richiesta di aiuto merita una risposta.
 
-Una testimonianza personale
+<img width="4032" height="1248" alt="image" src="https://github.com/user-attachments/assets/190a4ce3-45c7-465d-9734-b47c2366e0af" />
+
 
 Non scrivo questo manifesto soltanto come psicoterapeuta, psicoanalista e studioso della sofferenza umana.
 
@@ -108,7 +109,9 @@ Anche quando la speranza sembra assente, la vita conserva possibilità che in qu
 
 Con rispetto verso ogni persona che soffre, dedico queste parole alla difesa della vita, della dignità umana e della speranza.
 
-Dedica finale
+<img width="3309" height="2268" alt="image" src="https://github.com/user-attachments/assets/1a87b754-38e4-40d5-b8a9-66ff868a1c60" />
+
+
 Dedico questo manifesto a tutte le persone che hanno attraversato momenti di sofferenza, smarrimento e disperazione e che, nonostante tutto, hanno scelto di continuare a vivere.
 
 Lo dedico a coloro che combattono ogni giorno battaglie invisibili, a chi ha trovato la forza di chiedere aiuto e a chi continua a cercare una ragione per sperare.
