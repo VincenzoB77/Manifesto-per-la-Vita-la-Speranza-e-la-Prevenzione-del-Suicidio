@@ -93,7 +93,9 @@ Lo scrivo anche come persona che ha conosciuto momenti di profonda oscurità.
 
 Nel 2011 attraversai una fase della mia vita caratterizzata da sofferenza, smarrimento e disperazione. 
 
-Soltanto molti anni dopo, tra il 2021 e il 2025, sono riuscito a comprendere e rielaborare pienamente il significato di quell'esperienza all'interno della mia storia personale grazie al lavoro analitico svolto negli anni successivi con il mio psicoanalista di Saratoga Springs.
+Si trattò di una crisi esistenziale che segnò profondamente il mio percorso umano.
+
+Soltanto molti anni dopo, tra il 2021 e il 2025, sono riuscito a comprendere e rielaborare pienamente il significato di quell'esperienza all'interno della mia storia personale grazie al lavoro analitico svolto con il mio psicoanalista di Saratoga Springs.
 
 Per questo posso affermare, non solo come clinico ma anche come essere umano, che la sofferenza più intensa non rappresenta necessariamente la conclusione di una vita. Ciò che oggi appare insopportabile può essere compreso, trasformato e integrato nel tempo attraverso l'aiuto, la relazione e il coraggio di continuare.
 
