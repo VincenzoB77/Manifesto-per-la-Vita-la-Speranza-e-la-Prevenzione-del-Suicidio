@@ -85,19 +85,9 @@ Ogni persona merita di essere ascoltata.
 
 Ogni richiesta di aiuto merita una risposta.
 
-UNA TESTIMONIANZA PERSONALE 
+La sofferenza più intensa non rappresenta necessariamente la conclusione di una vita. 
 
-Non scrivo questo manifesto soltanto come psicoterapeuta, psicoanalista e studioso della sofferenza umana.
-
-Lo scrivo anche come persona che ha conosciuto momenti di profonda oscurità.
-
-Nel 2011 attraversai una fase della mia vita caratterizzata da sofferenza, smarrimento e disperazione. 
-
-Si trattò di una crisi esistenziale che segnò profondamente il mio percorso umano.
-
-Soltanto molti anni dopo, tra il 2021 e il 2025, sono riuscito a comprendere e rielaborare pienamente il significato di quell'esperienza all'interno della mia storia personale grazie al lavoro analitico svolto con il mio psicoanalista di Saratoga Springs.
-
-Per questo posso affermare, non solo come clinico ma anche come essere umano, che la sofferenza più intensa non rappresenta necessariamente la conclusione di una vita. Ciò che oggi appare insopportabile può essere compreso, trasformato e integrato nel tempo attraverso l'aiuto, la relazione e il coraggio di continuare.
+Ciò che oggi appare insopportabile può essere compreso, trasformato e integrato nel tempo attraverso l'aiuto, la relazione e il coraggio di continuare.
 
 A chiunque stia attraversando il proprio momento di buio desidero dire una cosa semplice:
 
@@ -115,14 +105,10 @@ Dedico questo manifesto a tutte le persone che hanno attraversato momenti di sof
 
 Lo dedico a coloro che combattono ogni giorno battaglie invisibili, a chi ha trovato la forza di chiedere aiuto e a chi continua a cercare una ragione per sperare.
 
-Lo dedico inoltre al mio psicoanalista di Saratoga Springs, il cui ascolto, la cui presenza e la cui fiducia nella capacità trasformativa dell'esperienza umana mi hanno aiutato a comprendere che anche il dolore più profondo può essere trasformato in significato, crescita e consapevolezza.
-
-Con gratitudine, rispetto e speranza.
-
 Dr. Vincenzo Bumbalo
 
 Copyright © 2026 Dr. Vincenzo Bumbalo. All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form without prior written permission from the author.
 
-Questo manifesto nasce dall'incontro tra esperienza personale, riflessione clinica e impegno umano nella prevenzione del suicidio. Attraverso una testimonianza diretta e una prospettiva etica orientata alla dignità della persona, il testo afferma il valore dell'ascolto, della relazione terapeutica e della responsabilità collettiva verso chi soffre. Partendo dalla convinzione che nessuna condizione di disperazione sia definitiva, il manifesto invita a riconoscere che anche il dolore più profondo può essere compreso, elaborato e trasformato attraverso il sostegno umano, psicologico e sociale. È un appello alla vita, alla speranza e alla solidarietà verso tutte le persone che affrontano momenti di smarrimento, isolamento e sofferenza psicologica.
+Questo manifesto nasce dall'incontro tra esperienza personale, riflessione clinica e impegno umano nella prevenzione del suicidio.Il testo afferma il valore dell'ascolto, della relazione terapeutica e della responsabilità collettiva verso chi soffre. Partendo dalla convinzione che nessuna condizione di disperazione sia definitiva, il manifesto invita a riconoscere che anche il dolore più profondo può essere compreso, elaborato e trasformato attraverso il sostegno umano, psicologico e sociale. È un appello alla vita, alla speranza e alla solidarietà verso tutte le persone che affrontano momenti di smarrimento, isolamento e sofferenza psicologica.
 
 
